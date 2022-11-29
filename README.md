@@ -1,4 +1,4 @@
-# HKbrute
-Amoby
+Hackers are not criminals but we are a family ready to help those who need help
 
-![IMG_20221129_212508.png](https://user-images.githubusercontent.com/117302203/204555045-01ad5736-0ba4-4c51-8525-64c3b6a58230.png)
+![IMG_20221129_235930.jpeg.gif](https://user-images.githubusercontent.com/117302203/204594196-8c4f9fea-a423-41cd-9ba8-211564914d9e.gif)
+
